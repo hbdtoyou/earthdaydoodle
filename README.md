@@ -1,2 +1,0 @@
-# earthdaydoodle
-earth day
